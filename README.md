@@ -21,5 +21,14 @@ https://github.com/andikaegahutama/Automation-Testing/assets/167520048/24ef6c65-
 
 ## 3. Kulakin (Admin)
 
+
+https://github.com/andikaegahutama/Automation-Testing/assets/167520048/16a4e782-7d6d-43d5-a8cd-7fc17d909959
+
+
+
 ## 4. DASHGO
+
+
+https://github.com/andikaegahutama/Automation-Testing/assets/167520048/cd7eb632-c1e3-41c0-b24a-d8a2bf12ebf9
+
 
